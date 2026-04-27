@@ -1,4 +1,4 @@
-# Why did I get into Product Management?
+# The Why
 My path into product management wasn’t traditional.
 
 I started out wanting to be a physical therapist, drawn to diagnosing problems, creating a plan, and guiding people from pain to progress. That instinct never left.
